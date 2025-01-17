@@ -1,6 +1,5 @@
 # How-To-Get-Domino-Dreams-Free-Coins-Links-Today
 
-<h2><a href="https://allresources.xyz/mcrafts.html/">Click Here To Get Link</a></h2>
 
 <h2><a href="https://allresources.xyz/dominocoins.html/">&gt;&gt;Click Here To Get Free Coins</a></h2>
 
